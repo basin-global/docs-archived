@@ -12,7 +12,7 @@ Let's start with the basics:
 
 The HoldCo / OpCo / PropCo (HOP) model has been used by REIT's, oil & gas, hospitality and large corporate conglomerates for almost a century.  We are simply using a play out of their playbook for regeneration rather than extraction.
 
-In the last several years "tech enabled real estate companies" have also been using on this model.  Although not fully commonplace _yet_, both VC and Real Estate Private Equity are actively seeking out this organizational and investment structure.
+In the last several years "tech enabled real estate companies" have also been using this model.  Although not fully commonplace _yet_, both VC and Real Estate Private Equity are actively seeking out this organizational and investment structure.
 
 The benefits of the HOP model are well documented but among them are: efficiency, synergy, shared value accrual, alpha and downside protection.
 
