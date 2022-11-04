@@ -12,3 +12,7 @@ Luckily, the IPCC concludes:
 * Up to 61% of global building emissions could be cut by 2050
 
 **Basin uses the “bundle of rights” embedded in real estate to attract agnostic and indifferent capital to climate, nature and carbon projects.**
+
+****
+
+[_Source_](../../formalities/bibliography.md)&#x20;

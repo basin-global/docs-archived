@@ -8,3 +8,7 @@ Higher carbon prices means more capital for better quality climate projects and/
 
 More importantly, every tonne of GHG removal delivers $664 in additional economic, social & environmental co-benefits.  At $20 per tonne, the 5 year Impact IRR is 101%.
 
+
+
+[_Source_](../../formalities/bibliography.md)&#x20;
+

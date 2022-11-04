@@ -15,3 +15,7 @@ Carbon, nature, people, and the global economy are all inextricably linked.  The
 
 In our greatest problems lay our greatest opportunities.
 
+
+
+[_Source_](../../formalities/bibliography.md)&#x20;
+
